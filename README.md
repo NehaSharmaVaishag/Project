@@ -1,1 +1,1 @@
-# Project
+I am an enthusiastic self-motivated person with good communication skills. I'm looking for an opportunity to work in a progressive organization offering a conductive and challenging work with an intellectually stimulating environment to utilize and enhance my knowledge, seeking a good opportunity to work under skilled professionals.
